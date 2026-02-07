@@ -1,8 +1,5 @@
-## Cherry🍒
-
-🩷🩷Técnica en Sistemas Microinformáticos y Redes, apasionada por el hacking ético y la programación🩷🩷
-
-![image](https://github.com/user-attachments/assets/583239d0-827d-41a9-b17c-0fde8ef7c097)
+ºº   ## Cherry🍒
+<img width="734" height="227" alt="image" src="https://github.com/user-attachments/assets/89ad99c4-5b44-4677-b57f-48012713086e" />
 
 
 

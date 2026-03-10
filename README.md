@@ -1,6 +1,7 @@
 ## Cherry🍒
 
-<img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/5c46b608-b4f0-42f3-b63e-bd56c54b63a6" />
+<img width="800" height="450" alt="image" src="https://github.com/user-attachments/assets/4758f609-7775-4fa7-b656-d995b6bb9358" />
+
 
 
 
